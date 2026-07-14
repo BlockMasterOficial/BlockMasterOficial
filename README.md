@@ -16,3 +16,10 @@ Have you ever wondered::
 - **[Economycraft](https://www.curseforge.com/minecraft/modpacks/economycraft)** – Get richer and stronger! Economycraft blends economy, adventure, and power in one modpack.   
 - **[Glx Smp 2](https://www.curseforge.com/minecraft/modpacks/glx-smp-2)** – This is the official modpack for the Glx Smp 2 series!
 - **[The Last Survivors - Zombie Apocalypse](https://www.curseforge.com/minecraft/modpacks/the-last-survivors-zombie-apocalypse)** – The city has fallen… and now surviving among ruins and ravenous creatures is the only option. This modpack recreates that atmosphere with an intense and realistic urban‑apocalypse experience.
+
+---
+
+
+### 📮 Find Me
+- 📺 [Youtube](https://www.youtube.com/@BlockMasterOficial) – Gameplays, Modpack Trailers and more! 
+- 💾 [CurseForge](https://www.curseforge.com/members/blockmaster/projects) – All my projects!  
