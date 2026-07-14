@@ -7,7 +7,7 @@ Have you ever wondered::
 - “What would it be like to colonize distant planets and explore the unknown?” 🚀
 - “Can I actually survive a relentless horde of the undead?” 🧟‍♂️
 
-…then you've probably crossed paths with my creations already.  
+...then you're about to discover all of this and a whole lot more. 
 
 ---
 
